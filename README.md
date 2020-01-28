@@ -1,0 +1,2 @@
+# Wallet-Assault
+I recieved a call Raymond Dwight from Raymond Dwight on Dec 26th, 2016 to go to Radioshack at Aurora Village dressed in civilian clothes to pick up a pre-ordered part. I arrived at Aurora Village shopping center and was attacked by Mikail Nickerson with a Bright Strike Device. I had little idea what happened and I went to Mikail's house, where I whitnessed he touching my child and I reported her. https://www.liveleak.com/view?t=aL1Yj_1529908520 This was right after the Hillary Clinton incident.
